@@ -1,5 +1,5 @@
 # 💫 About Me:
-👋 Hi, I'm Yaseen.<br><br>🤖 AI & Technology Enthusiast.<br><br>📚 Currently learning Python and strengthening my programming skills.<br><br>🤝 Open to internships, collaborations, and innovative ideas.<br><br>📫 sdyasin2932@gmail.com
+👋 Hi, I'm Yaseen.<br><br>🤖 AI & Technology Enthusiast.<br><br>📚 Currently learning Python and strengthening my programming skills.<br><br>🤝 Open to internships, collaborations, and innovative ideas.<br><br>📫 yaseensd007@gmail.com
 
 
 ## 🌐 Socials:
